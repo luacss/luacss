@@ -1,6 +1,6 @@
 ### Olá eu sou a Luiza Carolina 👋
 
-- 🌱 Estudando ciências da computação
+- 🌱 Estudando Ciências da Computação
 - 📫 Contate-me no email: carolinassna@gmail.com
 - 😄 Pronouns: ela/dela
 
